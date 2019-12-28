@@ -11,7 +11,7 @@
 
 ## B & H
 
-  - Porta Brace MO-702 - https://bhphotovideo.com/c/product/802032229-USE
+  - $58 - Porta Brace MO-702 - https://bhphotovideo.com/c/product/802032229-USE
 
 
 ## EBay
