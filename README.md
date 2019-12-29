@@ -24,6 +24,6 @@
   - $16.99 - Hi Hat Tambourine - https://www.guitarcenter.com/Meinl/Hi-Hat-Tambourine-Black-1-Row-1280422358354.gc
 
 
-## WalMart
+## https://walmart.com
 
 
