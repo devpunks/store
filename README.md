@@ -25,6 +25,7 @@
 ## https://guitarcenter.com
 
   - $16.99 - Hi Hat Tambourine - https://www.guitarcenter.com/Meinl/Hi-Hat-Tambourine-Black-1-Row-1280422358354.gc
+  - $150.00 - TAMA Woodworks 14x8" Poplar Snare Drum  Blacked Out Black - https://www.guitarcenter.com/TAMA/Woodworks-14x8-Poplar-Snare-Drum-Blacked-Out-Black-1500000299496.gc
 
 
 ## https://walmart.com
