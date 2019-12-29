@@ -1,6 +1,6 @@
 # DEVPUNKS.STORE
 
-  - TAMA Practice Pack - https://www.baileybrothers.com/spp518c-silent-practice-pack-for-stagestar
+  - TAMA Practice Pack Tama SPP518C - https://www.baileybrothers.com/spp518c-silent-practice-pack-for-stagestar
 
 ## Adorama
 
@@ -16,6 +16,11 @@
 
 
 ## EBay
+
+
+## Guitar Center
+
+  - $16.99 - Hi Hat Tambourine - https://www.guitarcenter.com/Meinl/Hi-Hat-Tambourine-Black-1-Row-1280422358354.gc
 
 
 ## WalMart
