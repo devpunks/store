@@ -2,6 +2,10 @@
 
   - TAMA Practice Pack Tama SPP518C - https://www.baileybrothers.com/spp518c-silent-practice-pack-for-stagestar
 
+## Rental Examples
+
+  - https://www.prophotorental.com
+
 
 ## https://adorama.com
 
